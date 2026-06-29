@@ -3,4 +3,13 @@
 ### Former software engineer with hands-on development experience, specializing in translating complex technical concepts into clear, engaging, and educational content for developers and engineering teams.
 # Writing Samples
 # Education
+#### Bachelor’s Degree in [Computer Science]
+#### Goa University — Goa, India
+
 # Contact
+##### Shilpa Nadkarni
+##### Pune, Maharashtra, India 
+##### 📞 +919850695277 
+##### Email: shilps.29@gmail.com 
+##### 🔗 LinkedIn: https://www.linkedin.com/in/shilpa-nadkarni-prabhudesai-1b018123/
+
