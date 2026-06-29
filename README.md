@@ -29,8 +29,8 @@
 
 # Contact
 ##### Shilpa Nadkarni
-##### Pune, Maharashtra, India 
+##### 📍 Pune, Maharashtra, India 
 ##### 📞 +919850695277 
-##### Email: shilps.29@gmail.com 
-##### 🔗 LinkedIn: https://www.linkedin.com/in/shilpa-nadkarni-prabhudesai-1b018123/
+##### ✉️ shilps.29@gmail.com 
+##### 🔗 [LinkedIn](https://www.linkedin.com/in/shilpa-nadkarni-prabhudesai-1b018123/)
 
